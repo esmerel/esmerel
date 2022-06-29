@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @esmerel 
-- 👀 I’m interested in a lot. I am a knitting, homebrewing, 3D printing, baking, homeschooling person with 2 kids and 4 pets.
-- 🌱 I’m currently learning how to rebuild a 3d printer that isn't what I thought it was. 
+- 👀 I’m interested in a lot. I am a knitting, homebrewing, 3D printing, baking, homeschooling person with 3 kids and 5 pets. Or more pets. Depends on if you count the ferals.
+- 🌱 I’m currently executive functioning like a potato.
 - 💞️ I’m looking to collaborate on .... hm, good question. 
 - 📫 How to reach me ... - @esmerel on twitter or my username @ gmail.
 
